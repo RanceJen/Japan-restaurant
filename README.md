@@ -278,6 +278,15 @@ https://maps.app.goo.gl/pchwchbmz97DdFSW7
 
 ![187878](https://hackmd.io/_uploads/BJdqgnClA.jpg)
 
+### かえるスタンド
+https://maps.app.goo.gl/7A4vBVNjZyWnTPqC7
+
+性價比：7
+特色：7
+總體評分：7
+
+不錯吃的三明治，招牌是炸玉子燒豬排三明治，真的挺好吃，早餐在附近可以優先考慮。
+
 ### 精肉すき焼処 北むら
 https://g.co/kgs/emy3Hvp
 
