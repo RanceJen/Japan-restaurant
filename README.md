@@ -526,8 +526,8 @@ https://www.youtube.com/watch?v=y-7ty6VInHY
 
 ![LINE_ALBUM_食物_240503_1](https://hackmd.io/_uploads/rJXOSNzGA.jpg)
 
-![messageImage_1714729957130](https://hackmd.io/_uploads/rJPz8NGM0.jpg)
-> 跟和牛一樣美的鮪魚
+![189961](https://hackmd.io/_uploads/SJro0hVzA.jpg)
+> 炙燒鮪魚+海膽+蛋黃蓋飯，無敵好吃
 
 ![189960](https://hackmd.io/_uploads/rJDJAhEMR.jpg)
 > 當季特級紫海膽，大千是很高級的供貨商
@@ -544,7 +544,7 @@ https://g.co/kgs/MfVN6CQ
 
 資生堂系的餐廳對我來說都有個扣分點，為了美觀會放棄一些其他要素，例如菜看過去實在不知道怎麼吃，餐盤上會有「純裝飾品」(不能吃的那種)，這對我個人來說算是扣分。
 
-![189946](https://hackmd.io/_uploads/HyKew34fA.jpg)
+![S__29025063_0](https://hackmd.io/_uploads/SJQLJTEG0.jpg)
 > 一整套 fine dining 下來最好吃的居然是甜點...
 
 ### 牛たんねぎし 秋葉原店
