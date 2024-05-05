@@ -529,6 +529,9 @@ https://www.youtube.com/watch?v=y-7ty6VInHY
 ![messageImage_1714729957130](https://hackmd.io/_uploads/rJPz8NGM0.jpg)
 > 跟和牛一樣美的鮪魚
 
+![189960](https://hackmd.io/_uploads/rJDJAhEMR.jpg)
+> 當季特級紫海膽，大千是很高級的供貨商
+
 ### Faro ファロ
 https://g.co/kgs/MfVN6CQ
 日期：27, April 2024
