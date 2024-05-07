@@ -23,6 +23,7 @@
 
 10：吃就對了，無敵店
 
+
 ## 姬路
 
 姬路城美爆，很適合退休生活的感覺
@@ -262,6 +263,7 @@ https://g.co/kgs/97dBfxR
 ![409431](https://hackmd.io/_uploads/H1yrTjReA.jpg)
 > 阿伯的漢字有點抽象
 
+
 ## 大阪
 
 日本最兇之地，走路慢一點要被撞，走路沒有閃要被撞，怎樣都要被撞。
@@ -285,6 +287,8 @@ https://maps.app.goo.gl/7A4vBVNjZyWnTPqC7
 總體評分：7
 
 不錯吃的三明治，招牌是炸玉子燒豬排三明治，真的挺好吃，早餐在附近可以優先考慮。
+
+![190204](https://hackmd.io/_uploads/HyIOUAPM0.jpg)
 
 ### 精肉すき焼処 北むら
 https://g.co/kgs/emy3Hvp
