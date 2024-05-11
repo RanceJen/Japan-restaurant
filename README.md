@@ -24,12 +24,14 @@
 10：吃就對了，無敵店
 
 
+
 ## 姬路
 
 姬路城美爆，很適合退休生活的感覺
 
 ### 鍋竜 
 https://maps.app.goo.gl/Xfjz3WEUH1ByHvXx6
+日期：12, April 2024
 
 性價比：7
 特色：7.5
@@ -44,6 +46,7 @@ https://maps.app.goo.gl/Xfjz3WEUH1ByHvXx6
 
 ### はまもとコーヒー Hamamoto Coffee
 https://g.co/kgs/S9PzWcY
+日期：13, April 2024
 
 性價比：7.5
 特色：8.5
@@ -57,6 +60,7 @@ https://g.co/kgs/S9PzWcY
 
 ### とんかつ朔 Tonkatsu Saku 
 https://maps.app.goo.gl/HFTi9gw6VTPCPZe37
+日期：13, April 2024
 
 性價比：7
 特色：8
@@ -69,10 +73,12 @@ https://maps.app.goo.gl/HFTi9gw6VTPCPZe37
 ![187301](https://hackmd.io/_uploads/BJWjFtCxR.jpg)
 
 ### たこ焼あずきち
+https://g.co/kgs/5Lj4jHj
+日期：13, April 2024
 
-性價比：5
-特色：4
-總體評分：4
+性價比：4
+特色：3.5
+總體評分：3.5
 
 章魚燒裡面的章魚有夠小，一平方公分的立方體
 一堆麵糊沒有特別味道醬汁也不給力
@@ -83,6 +89,7 @@ https://maps.app.goo.gl/HFTi9gw6VTPCPZe37
 
 ### アリス イン タカマツ ALICE IN TAKAMATSU 
 https://g.co/kgs/tYQN7Lz
+日期：13, April 2024
 
 性價比：7.5
 特色：7.5
@@ -96,10 +103,11 @@ https://g.co/kgs/tYQN7Lz
 
 ### 手打十段うどんバカ一代
 https://g.co/kgs/vkxd51w 
+日期：14, April 2024
 
-性價比：7
+性價比：6
 特色：5.5
-總體評分：6
+總體評分：5
 扣分項：排隊
 
 少數週日有開的烏龍麵，由於名氣響亮(奶油烏龍麵)早上跟中午都會大排長龍，味道普通其實不值得排隊，路過沒人可以考慮吃吃看，或是留著肚子給其他好吃的烏龍麵。
@@ -108,6 +116,7 @@ https://g.co/kgs/vkxd51w
 
 ### 三びきの子ぶた
 https://g.co/kgs/v4vTswF
+日期：14, April 2024
 
 性價比：6
 特色：5
@@ -120,6 +129,7 @@ https://g.co/kgs/v4vTswF
 
 ### Neighbours Diner
 https://g.co/kgs/Rhj7N8e
+日期：14, April 2024
 
 性價比：6.5
 特色：7.5
@@ -135,6 +145,8 @@ https://g.co/kgs/Rhj7N8e
 
 ### 公楽食堂
 https://maps.app.goo.gl/wATbcpawDc1V1jxP9
+日期：15, April 2024
+
 性價比：7
 特色：6
 總體評分：6
@@ -145,6 +157,7 @@ https://maps.app.goo.gl/wATbcpawDc1V1jxP9
 
 ### 手打うどん風月
 https://maps.app.goo.gl/7P3yyaBifiAwavFC7
+日期：15, April 2024
 
 性價比：6.5
 特色：8
@@ -161,6 +174,7 @@ https://maps.app.goo.gl/7P3yyaBifiAwavFC7
 
 ### 季節料理 かたやま
 https://maps.app.goo.gl/948YvTrFpTzvtSSD8
+日期：15, April 2024
 
 性價比：6.5
 特色：8
@@ -173,6 +187,7 @@ https://maps.app.goo.gl/948YvTrFpTzvtSSD8
 
 ### みそかつ梅の木
 https://g.co/kgs/KrskvmF
+日期：16, April 2024
 
 性價比：7
 特色：7
@@ -185,6 +200,7 @@ https://g.co/kgs/KrskvmF
 
 ### 有鄰庵
 https://g.co/kgs/ZK7pF7U
+日期：16, April 2024
 
 性價比：5.5
 特色： 6.5
@@ -196,6 +212,8 @@ https://g.co/kgs/ZK7pF7U
 
 
 ### tweet rocka ツイート ロッカ
+https://g.co/kgs/x8t9icK
+日期：16, April 2024
 
 性價比：7
 特色： 9
@@ -207,6 +225,7 @@ https://g.co/kgs/ZK7pF7U
 
 ### かしわや小林
 https://g.co/kgs/JiS4aai
+日期：16, April 2024
 
 性價比：6.5
 特色：5.5
@@ -216,10 +235,12 @@ https://g.co/kgs/JiS4aai
 
 ### お好み焼きもり
 https://maps.app.goo.gl/YzDdqcmqHxHDDjaY8
+日期：17, April 2024
 
 性價比：7.5
 特色：∞
 總體評分：∞
+加分項：香菜
 
 香菜天堂，老闆是岡山香菜傳教士，從香菜大阪燒到香菜啤酒一應俱全，我好愛他。
 
@@ -233,6 +254,7 @@ https://okayamaokonomiyakimori.gorp.jp/
 
 ### ニコニコ堂 奉還町店
 https://g.co/kgs/HeXUvit
+日期：17, April 2024
 
 性價比：8
 特色：8
@@ -248,6 +270,7 @@ https://g.co/kgs/HeXUvit
 
 ### しあわせショップ ハッピー
 https://g.co/kgs/97dBfxR
+日期：17, April 2024
 
 性價比：10
 特色：9
@@ -270,6 +293,7 @@ https://g.co/kgs/97dBfxR
 
 ### 鮨 三心　店頭受取
 https://maps.app.goo.gl/pchwchbmz97DdFSW7
+日期：17, April 2024/20, April 2024
 
 性價比：7
 特色：8.5
@@ -281,6 +305,7 @@ https://maps.app.goo.gl/pchwchbmz97DdFSW7
 
 ### かえるスタンド
 https://maps.app.goo.gl/7A4vBVNjZyWnTPqC7
+日期：18, April 2024
 
 性價比：7
 特色：7
@@ -292,6 +317,7 @@ https://maps.app.goo.gl/7A4vBVNjZyWnTPqC7
 
 ### 精肉すき焼処 北むら
 https://g.co/kgs/emy3Hvp
+日期：18, April 2024
 
 性價比：6
 特色：8.5
@@ -305,6 +331,7 @@ https://g.co/kgs/emy3Hvp
 
 ### コルダ食堂
 https://g.co/kgs/9t6ETL1
+日期：19, April 2024
 
 性價比：7
 特色：7.5
@@ -317,6 +344,7 @@ https://g.co/kgs/9t6ETL1
 
 ### 天ぷら 川原崎
 https://g.co/kgs/2jmnQC5
+日期：19, April 2024
 
 性價比：8
 特色：10
@@ -333,6 +361,7 @@ https://g.co/kgs/2jmnQC5
 
 ### 薪火と熟成神戸牛 Vesta 
 https://g.co/kgs/XZfuZM1
+日期：20, April 2024
 
 性價比：6
 特色：7.5
@@ -344,6 +373,7 @@ https://g.co/kgs/XZfuZM1
 
 ### 風鶏
 https://g.co/kgs/RXhNijB
+日期：20, April 2024
 
 性價比：8
 特色：8
@@ -356,6 +386,7 @@ https://g.co/kgs/RXhNijB
 
 ### カセント Ca sento
 https://g.co/kgs/Ct8ZqWT
+日期：21, April 2024
 
 性價比：1
 特色：3
@@ -378,6 +409,7 @@ https://g.co/kgs/Ct8ZqWT
 
 ### 麺処 虵の目屋
 https://g.co/kgs/DKF4AYX
+日期：22, April 2024
 
 日期：22, April 2024
 性價比：7
@@ -405,6 +437,7 @@ https://g.co/kgs/JE1LATU
 ![messageImage_1714642865439](https://hackmd.io/_uploads/ByDRky-zR.jpg)
 
 ### 燻吟かず家
+https://g.co/kgs/jHZdLcS
 日期：22, April 2024
 
 性價比：　7
