@@ -812,7 +812,13 @@ https://g.co/kgs/8WctZiS
 ![413055](https://hackmd.io/_uploads/S1hgz24GC.jpg)
 > 鰻魚咖喱蛋包飯，真的很好吃
 
-![413056](https://hackmd.io/_uploads/BJHbf34GC.jpg)
+![190488](https://hackmd.io/_uploads/S1jVFGaGC.jpg)
+> 我請老闆調一杯 Moscow mule + Singapore slim 的神秘混合
+
+
+![190485](https://hackmd.io/_uploads/ByVKYzTGA.jpg)
+> 創作威士忌可樂，無名
+
 
 ![413057](https://hackmd.io/_uploads/ryRAMhEfR.jpg)
 > 和牛也很好吃
@@ -855,5 +861,4 @@ https://g.co/kgs/XVBQmEs
 米其林推薦入選過的店，定位類似 ALICE IN TAKAMATSU 的便宜 fine dining，一個晚餐 set 8500 挺划算(很多 fine dining 晚餐會特貴)，個人感覺表現比 ALICE IN TAKAMATSU 再更好一些，有差不多米其林一星的水準，wine paring 的表現很普通，不值得追加。
 
 ![messageImage_1715441059491](https://hackmd.io/_uploads/r1LhpWTfC.jpg)
-
 
