@@ -85,6 +85,9 @@ https://g.co/kgs/5Lj4jHj
 章魚燒裡面的章魚有夠小，一平方公分的立方體
 一堆麵糊沒有特別味道醬汁也不給力
 
+![image](https://hackmd.io/_uploads/ryUbqz6MR.jpg)
+> 真的不好吃
+
 ## 高松
 
 四國真的好鄉下
