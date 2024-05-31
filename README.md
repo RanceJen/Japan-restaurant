@@ -581,7 +581,7 @@ https://maps.app.goo.gl/6Fwz3VtNiDzmhvcm6
 https://maps.app.goo.gl/1SY36q2coWeTVkjHA
 日期：2021 1 次
 
-性價比：5
+性價比：4
 特色：4
 總體評分：3.5
 扣分項：服務，環境
@@ -610,9 +610,9 @@ https://maps.app.goo.gl/rdvEBN6o4rvQmrm76
 https://maps.app.goo.gl/cTLdy8ysQKmWrMNHA
 日期：2021 2 次
 
-性價比：5.5
+性價比：5
 特色：6.5～7.5
-總體評分：6～7.5
+總體評分：5~7
 扣分項：品質不穩定
 訂位：提早 3 天
 
